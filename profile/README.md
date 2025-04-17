@@ -8,6 +8,8 @@
 
 Whether you’re at school, work, or just bored at home, **Crazy Cattle 3D Unblocked** offers **endless fun** with no downloads, no paywalls, and no limits.
 
+## <a href="https://izigames.net/">👉 Click To Play Crazy Cattle 3D Unblocked 👈</a>
+
 ---
 
 ## 🐂 Game Features
